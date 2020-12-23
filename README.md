@@ -5,7 +5,7 @@ There is some pretty important things in here, which you NEED to see if you want
 ---
 
 # belle-daphine-onlyfans-reminder
-A android app made to annoy you about Belle Daphine's porno she's uploading on her OnlyFans.
+A android app made to annoy you about Belle Daphine's *ahem* she's uploading on her OnlyFans on christmas day.
 
 ---
 
