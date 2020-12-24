@@ -4,14 +4,14 @@ There is some pretty important things in here, which you NEED to see if you want
 
 ---
 
-# belle-daphine-onlyfans-reminder
-A android app made to annoy you about Belle Daphine's *ahem* she's uploading on her OnlyFans on christmas day.
+# belle-delphine-onlyfans-reminder
+A android app made to annoy you about Belle Delphine's *ahem* she's uploading on her OnlyFans on christmas day.
 
 ---
 
 ## Why?
 
-Well, I was in a DM call with someone via discord and I saw in their screenshare that they brought up Belle Daphines onlyfans porno she's uploading on the 225th of December. So I decided it would be a GREAT idea to make an android app to annoy you about it, on christmas day.
+Well, I was in a DM call with someone via discord and I saw in their screenshare that they brought up Belle Delphine onlyfans porno she's uploading on the 25th of December. So I decided it would be a GREAT idea to make an android app to annoy you about it, on christmas day.
 
 The app does the following:
 
